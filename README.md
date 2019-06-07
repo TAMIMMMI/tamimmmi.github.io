@@ -1,1 +1,1 @@
-# tamimmmi.github.io
+map of my favorite destinations
